@@ -1,4 +1,4 @@
-# Hello My Gorgeous Friend in The Internet!
+# Hello My Gorgeous Friends in The Internet!
 
 Let me introduce myself
 
@@ -10,9 +10,9 @@ Let me introduce myself
 |       | rullyihza@students.unnes.ac.id |
 | Instagram | [@rllyhz](https://www.instagram.com/rllyhz/) |
 
-## I am Interested to do
+## I am Interested to do 
 
-- Web Design
+- Web Design 
 - Web Developer
 
 **So, let's create something awesome with me :)**
