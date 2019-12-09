@@ -1,5 +1,7 @@
 # Hello My Gorgeous Friend in The Internet!
+
 Let me introduce myself
+
 | Detail | Data |
 |  ---  | --- |
 | Name | Rully Ihza Mahendra |
