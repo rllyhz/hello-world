@@ -8,4 +8,4 @@ Let me introduce myself
 | Birthdate | September 29th, 1999 |
 | Email | rullyihza00@gmail.com |
 |       | rullyihza@students.unnes.ac.id |
-| Instagram | [@rllyhz](htttps://www.instagram.com/rllyhz "Rully Ihza Mahendra") |
+| Instagram | [@rllyhz](https://www.instagram.com/rllyhz/) |
