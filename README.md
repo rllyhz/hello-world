@@ -1,6 +1,6 @@
-# Hello My Gorgeous Friends in The Internet!
+# Hello My Gorgeous Friends in The Internet ◕ ‿ ◕
 
-Let me introduce myself
+Humbly and kindly, let me introduce myself
 
 | Detail | Data |
 |  ---  | --- |
