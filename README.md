@@ -9,6 +9,7 @@ Humbly and kindly, let me introduce myself
 | Email | rullyihza00@gmail.com |
 |       | rullyihza@students.unnes.ac.id |
 | Instagram | [@rllyhz](https://www.instagram.com/rllyhz/) |
+| Twitter | [@rllyhz](https://www.twitter.com/rllyhz/) |
 
 ## I am Interested to do 
 
